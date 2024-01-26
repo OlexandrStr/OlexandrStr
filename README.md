@@ -20,3 +20,4 @@ If you're seeking someone passionate about cryptocurrencies, experienced in vali
 
 Best regards,
 Striletskyi Oleksandr
+📧 Email: stri.ss.ki@gmail.com
